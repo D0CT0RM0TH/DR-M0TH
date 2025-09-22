@@ -14,7 +14,7 @@ ART CREDITS  -   <b>@dan_dxuxk.</b>
    or any nicknames you have in store for me!!!
 
 <p align="center">
-I have axienty as well as social axienty and some other disorders ^_^; <br>
+I have axienty as well as social anxiety and some other disorders ^_^; <br>
  , so I might be quite awkward and nervous at first, I'm really sorry about that ^n^ . <br>
   Though I'll warm up to you with some time! ^u^ 
 <p align="center">
