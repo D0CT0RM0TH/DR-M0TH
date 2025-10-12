@@ -9,7 +9,7 @@ ART CREDITS  -   <b>@dan_dxuxk.</b>
  
   
  <p align="center">
- <b>HALLO THERE!!! ^_^  <br>
+HALLO THERE!!! ^_^  <br>
    You can call me Bell, Brutus, or Dutch!!! , <br>
    or any nicknames you have in store for me!!!
 
